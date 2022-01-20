@@ -1,1 +1,1 @@
-# shanmukhanadh_INFO5502_sPRING2022
+# shanmukhanadh_INFO5502_Spring2022
